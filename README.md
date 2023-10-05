@@ -1,1 +1,1 @@
-# -Proyecto-de-Inclusi-n--Honrar-la-Vida-en-Desarrollo
+ En el barrio Florida, "Honrar la Vida" de Amarte Argentina se destaca como una iniciativa innovadora. A través de talleres educativos y recreativos, busca promover la inclusión y un desarrollo integral, marcando un cambio positivo en la comunidad.
